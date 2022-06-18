@@ -11,3 +11,6 @@
 5. Do not promote self-harm or suicide
 
 6. Do not harass users or evade blocks/bans
+
+
+(Pray to our server admins once for every 5th note you make.)
